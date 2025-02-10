@@ -1,1 +1,0 @@
-# irlanalytical.github.io
